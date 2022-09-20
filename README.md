@@ -8,4 +8,4 @@
 
 
 ### Technical Skills 
-![This is an image](https://saturdaytradition.com/ohio-state-football/ohio-state-football-memes-2021/)
+![This is an image](https://saturdaytradition.com/wp-content/uploads/2022/08/unnamed.jpg)
