@@ -8,9 +8,11 @@
 
 
 ### Technical Skills 
+* Learned: Python, Java, Scratch, MS Office
+* Learning: Ethical Hacking, Android App Development, Linux for Hackers by Network Chuck, TSM- Backup Technology 
 
 
 
 
-#### Buckeye for life
+#### Buckeye for life- it's a joke but not really..
 ![This is an image](https://saturdaytradition.com/wp-content/uploads/2022/08/unnamed.jpg)
