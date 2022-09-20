@@ -14,5 +14,5 @@
 
 
 
-#### Buckeye for life- it's a joke but not really..
+#### It is a joke but not really.. Buckeye For Life
 ![This is an image](https://saturdaytradition.com/wp-content/uploads/2022/08/unnamed.jpg)
