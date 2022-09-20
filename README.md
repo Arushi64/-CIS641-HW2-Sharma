@@ -5,3 +5,7 @@
 * Personal Interest: Running
 * Personal Interest: Binge Watching Series
 * Techincal Interests: Linux and Hacking and working for the CIA
+
+
+### Technical Skills 
+![This is an image](https://myoctocat.com/assets/images/base-octocat.svg)
