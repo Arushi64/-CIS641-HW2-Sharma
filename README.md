@@ -8,4 +8,4 @@
 
 
 ### Technical Skills 
-![This is an image](https://myoctocat.com/assets/images/base-octocat.svg)
+![This is an image](https://saturdaytradition.com/ohio-state-football/ohio-state-football-memes-2021/)
