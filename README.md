@@ -2,7 +2,7 @@
 
 ## Arushi Sharma 
 
-* Personal Interest: Running, FPS Games
+* Personal Interests: Running, FPS Games
 * Personal Interest: Binge Watching Series
 * Techincal Interests: Linux and Hacking and working for the CIA
 
